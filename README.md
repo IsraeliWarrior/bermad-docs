@@ -1,1 +1,0 @@
-# bermad-docs
